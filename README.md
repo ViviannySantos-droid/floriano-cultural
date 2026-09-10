@@ -1,1 +1,0 @@
-# floriano-cultural
